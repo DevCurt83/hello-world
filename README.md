@@ -1,2 +1,3 @@
 # hello-world
 Just spreading my wings for the first time...
+Musically minded being with a need to keep learning. Loving the journey of learning code. Its a twisty and winding road. But once you achieve your goal. You got the key to the globe.   
